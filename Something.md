@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=9000&center=true&vCenter=true&multiline=true&height=100&lines=I+got+fucking+hell+in+my+veins;The+devil+is+living+in+my+heart+;He's+playing+doll+with+my+body;HELP+ME+;HELP+ME+PLEASE)](https://git.io/typing-svg)
